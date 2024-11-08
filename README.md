@@ -9,4 +9,4 @@ quando eu estou com tempo livre gosto muito de ler
 ✈️
 🩹
 zx
-1[]https://media1.tenor.com/m/G0Ng7e9RuWUAAAAd/caesar-rise-of-the-planet-of-the-apes.gif
+![](https://media1.tenor.com/m/G0Ng7e9RuWUAAAAd/caesar-rise-of-the-planet-of-the-apes.gif)
